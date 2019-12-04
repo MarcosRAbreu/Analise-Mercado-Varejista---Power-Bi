@@ -1,0 +1,1 @@
+Analise de mercaddo varegista online.
